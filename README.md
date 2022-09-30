@@ -1,0 +1,2 @@
+# mahni
+aGUN VE nAMIQIN MAHNI YAZMAGHI
